@@ -1,4 +1,4 @@
-Hi 👋 My name is Mohammed Benkhattab
+Hi 👋 I'm Mohammed Benkhattab
 ====================================
 
 - 👀 I’m currently a student at 1337/42 school
